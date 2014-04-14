@@ -1,6 +1,6 @@
-# Wer bin ich
+# Jean-Marc Hensch
 
-Jean-Marc Hensch
+Geschäftsführer von [Swico](http://www.swico.ch) und [Swico Recycling](http://www.swicorecycling.ch)
 
 Man findet mich auf
 * [Twitter](https://twitter.com/sosicles)
