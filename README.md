@@ -11,6 +11,6 @@ Man findet mich auf
 * [Pinterest](http://pinterest.com/sosicles)
 
 
-![Jean-Marc Hensch @ IERC Salzburg 2013](https://farm9.staticflickr.com/8516/8600333900_6eed781bc8_m.jpg)
+![Jean-Marc Hensch @ IERC Salzburg 2013](https://farm9.staticflickr.com/8516/8600333900_6eed781bc8_b.jpg)
 
 
