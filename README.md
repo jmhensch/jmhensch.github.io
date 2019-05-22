@@ -1,6 +1,6 @@
 # Jean-Marc Hensch
 
-Geschäftsführer von [Swico](http://www.swico.ch) und [Swico Recycling](http://www.swicorecycling.ch)
+[Business Angel and Board Member](http://hens.ch)
 
 Man findet mich auf
 * [Twitter](https://twitter.com/sosicles)
